@@ -13,3 +13,5 @@ style: format README with consistent headings
 refactor: simplify README example
 
 test: add basic usage test to examples/
+
+I WANT TO SEE 
