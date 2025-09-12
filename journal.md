@@ -17,3 +17,5 @@ test: add basic usage test to examples/
 I WANT TO SEE 
 
 nice to see this miracle 
+
+2025.09.12. I think about future and exams!
