@@ -19,3 +19,5 @@ I WANT TO SEE
 nice to see this miracle 
 
 2025.09.12. I think about future and exams!
+
+2025.09.25 it was getting cold a little!
