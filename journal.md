@@ -21,3 +21,15 @@ nice to see this miracle
 2025.09.12. I think about future and exams!
 
 2025.09.25 it was getting cold a little!
+
+2025.11.19. my feels my legs my hands shaking for this true🧑‍💻🧑‍💻🧑‍💻🧑‍💻
+
+I want to change 
+I want to prepare to future 
+I want to see next of this day
+I want to clear my day 
+I want to do great work 
+
+
+
+butttt I don't know how to do dat؟؟؟😐
